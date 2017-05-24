@@ -1,4 +1,4 @@
-2000/01/05
+2000/01/19
 
 
-Apple ignited the personal computer revolution in the 1970s with the Apple II, and reinvented the personal computer in the 1980s with the Macintosh. Apple is now recommitted to its original mission—to bring the best personal computing products and support to students, educators, designers, scientists, engineers, businesspersons and consumers in over 140 countries around the world.
+Apple ignited the personal computer revolution in the 1970s with the Apple II and reinvented the personal computer in the 1980s with the Macintosh. Apple is committed to bringing the best personal computing experience to students, educators, creative professionals and consumers around the worldthrough its innovative hardware, software and Internet offerings.
